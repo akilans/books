@@ -11,4 +11,15 @@ your dreams
 
 * it only takes one idea to change your life
 
-* 
+* 95% of our society will never create and live the life they really want.
+
+* How you do anything is how you do everything
+
+* If you want to be rich never do these things 
+  1) Blame everyone
+  2) Justify everything
+  3) Complain everything
+
+* One of the saddest things in life is to get to the end and look back in
+regret, knowing that you could have been, done, and had so much
+more
