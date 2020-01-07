@@ -23,3 +23,6 @@ your dreams
 * One of the saddest things in life is to get to the end and look back in
 regret, knowing that you could have been, done, and had so much
 more
+
+* You can learn more in an hour of silence than you can in a year from
+books
