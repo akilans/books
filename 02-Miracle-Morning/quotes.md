@@ -26,3 +26,5 @@ more
 
 * You can learn more in an hour of silence than you can in a year from
 books
+
+* An extraordinary life is all about daily, continuous improvements in the areas that matter most
