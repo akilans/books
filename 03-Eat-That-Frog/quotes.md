@@ -6,4 +6,8 @@
 
 * Before you begin scrambling up the ladder of success, make sure that it is leaning against the right building
 
-* 
+* Planning is bringing the future into the present. so you can do something about it now
+
+* Action without planning is the cause of every failure
+
+* 6Ps - Proper Prior Planning Prevents Poor Performance
