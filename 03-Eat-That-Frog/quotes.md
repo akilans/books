@@ -11,3 +11,5 @@
 * Action without planning is the cause of every failure
 
 * 6Ps - Proper Prior Planning Prevents Poor Performance
+
+* There is never enough time to do everything, but there is always enough time to do the most important thing
